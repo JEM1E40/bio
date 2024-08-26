@@ -1,3 +1,3 @@
 # sou uma aluna do alura e estou aprendendo javascript, aqui postarei meus projetos
 
-![](https://tenor.com/jmWJBnQ2xfZ.gif)
+![](https://media1.tenor.com/m/Wz_9o2IiIHkAAAAd/laugh-giggle.gif)
